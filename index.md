@@ -1,4 +1,4 @@
-ile Fixer — Privacy Policy (Beta)
+File Fixer — Privacy Policy (Beta)
 
 Last updated: August 13, 2026
 Status: Beta release
